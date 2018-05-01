@@ -12,3 +12,14 @@ with for only a few years.
 ## 词汇突破
 * proud 傲慢的，自豪的
 * productive 多产的
+* feature 描写...的特征
+* speech 演讲，发言
+* praise 赞扬，歌颂
+* loyalty 忠诚，忠心
+* capitalist 资本家，有钱人
+* regress 倒退，退化
+* survival 生存，幸存者
+* extend 延伸，增加
+* stockholder 股东
+* grab 夺取，豪夺
+
