@@ -36,3 +36,19 @@ The new rich selfishly act on their own to undairly grab the wealth that the cou
 * outsource 外包，吧产品包给分公司来做
 
 ***
+
+To keep the money machine working smoothly the rich have bought all the politicians from the top down. The president himself is constantly leaving Washington and the business of the nation because he is summoned to "fundraising dinners" where facts pay a thousand or so dollars a place to worm their way into goverment not through service but throught donations of vast amounts of money. Once on the inside they have both political parties busily tearing up all the regulations that protect the rest of us from the greed of the rich.
+
+为了使造钱机器顺利运转，富人们从上到下收买政客。总统本人经常李凯华盛顿，脱身与国家事务，被邀请参加“筹善晚宴”，宴会上，阔佬们会为一道菜花费上千美元，还会大笔大笔的捐款，目的就是要取巧，不通过为国效力就直接混入政府。而一旦进入政府内部，他们就让两党一门心思的摧毁所有保护其他人免受富人贪婪压榨的规章制度。
+
+## 词汇突破
+* smoothly 流畅地
+* donation 捐赠，捐款
+* constanly 不断的，经常地
+* tear up 撕成碎片
+* summon 召唤，传讯
+* greed 贪婪
+* worm 蠕动，使缓慢前进
+
+
+
